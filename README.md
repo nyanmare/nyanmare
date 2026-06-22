@@ -1,6 +1,11 @@
+$${\color{red}m\color{orange}e\color{yellow}ee\color{green}o\color{blue}o\color{purple}w\color{violet}w}$$
 
-can somebody fucking touch me
-<rainbow-text>
-  <link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/font-awesome/6.5.1/css/all.min.css" integrity="sha512-DTOQO9RWCH3ppGqcWaEA1BIZOC6xxalwEsw9c2QQeAIftl+Vegovlnee1c9QX4TctnWMn13TZye+giMm8e2LwA==" crossorigin="anonymous" referrerpolicy="no-referrer" />
-  meowls <i class="fa-brands fa-fort-awesome"></i>
-</rainbow-text>
+$${\color{pink}​ 𐔌՞꜆.  ̫.꜀՞𐦯 ⋆.˚}$$
+
+<img width="727" height="22" alt="ezgif com-webp-to-gif-converter (20)" src="https://github.com/user-attachments/assets/72756d58-4187-4eb9-a3be-00620ef6714b" />
+<img width="730" height="23" alt="ezgif com-webp-to-gif-converter (21)" src="https://github.com/user-attachments/assets/30c02c9f-789e-40c2-961c-49b650a1a83d" />
+<img width="731" height="44" alt="tumblr_a64663820c1bbaea3068c4620a679d62_85102e99_1280" src="https://github.com/user-attachments/assets/1ac35b87-bf3c-4bf6-80ad-7a8419843a5f" />
+
+mepeow
+
+oim ititredf om ok logoging out on 7:58 am
