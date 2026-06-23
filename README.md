@@ -1,4 +1,4 @@
-$${\color{red}m\color{orange}e\color{yellow}ee\color{green}o\color{blue}o\color{purple}w\color{violet}w}$$
+$${\color{#FFB2C1}m\color{#FCCA97}e\color{#FCEA87}e\color{#A6F1B8}o\color{#5BE8FA}o\color{#BCB4FF}o\color{#FD78DA}w\color{#FC898D}ww}$$  
 
 $${\color{pink}​ 𐔌՞꜆.  ̫.꜀՞𐦯 ⋆.˚}$$
 
@@ -8,9 +8,24 @@ $${\color{pink}​ 𐔌՞꜆.  ̫.꜀՞𐦯 ⋆.˚}$$
 
 mepeow
 
-$${\color{red}s\color{orange}t\color{yellow}r\color{green}a\color{blue}w\color{purple}p\color{violet}a\color{red}g\color{orange}e}$$ $${\color{pink}​ here!}$$
+$${\color{#FFB2C1}m\color{#FCCA97}a\color{#FCEA87}i\color{#A6F1B8}n\color{#5BE8FA}-\color{#BCB4FF}c\color{#FD78DA}h\color{#FC898D}a\color{#FFB2C1}r\color{#FCCA97}f\color{#FCEA87}i\color{#A6F1B8}x}$$ 
 
-$${\color{red}a\color{orange}r\color{yellow}c\color{green}h\color{blue}i\color{purple}v\color{violet}e\color{red}p\color{orange}a\color{yellow}g\color{green}e\color{blue}s}$$  $${\color{cyan}​ here!}$$
+ <div align="center">(づ๑•ᴗ•๑)づ♡ https://nyannmare.straw.page/time
 
-$${\color{#855332} Nyaaaa}$$
+ ❀
+
+$${\color{#FFB2C1}a\color{#FCCA97}r\color{#FCEA87}c\color{#A6F1B8}h\color{#5BE8FA}i\color{#BCB4FF}v\color{#FD78DA}e\color{#FC898D}p\color{#FFB2C1}a\color{#FCCA97}g\color{#FCEA87}e\color{#A6F1B8}s}$$  
+
+   <div align="center"> /ᐠ˵- ⩊ -˵マ  . . . https://nyanmare.carrd.co
+
+   ❀
+
+ <div align="center"> ❀
+ 
+
+ ❀
+ 
+ ❤︎
+   
+   
 
