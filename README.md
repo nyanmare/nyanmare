@@ -10,7 +10,7 @@ mepeow
 
 $${\color{#FFB2C1}m\color{#FCCA97}a\color{#FCEA87}i\color{#A6F1B8}n\color{#5BE8FA}-\color{#BCB4FF}c\color{#FD78DA}h\color{#FC898D}a\color{#FFB2C1}r\color{#FCCA97}f\color{#FCEA87}i\color{#A6F1B8}x}$$ 
 
- <div align="center">(づ๑•ᴗ•๑)づ♡ https://nyannmare.straw.page/time
+ <div align="center">(づ๑•ᴗ•๑)づ♡ https://nyannmare.straw.page/krisdr
 
  ❀
 
