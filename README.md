@@ -28,4 +28,4 @@ $${\color{#FFB2C1}a\color{#FCCA97}r\color{#FCEA87}c\color{#A6F1B8}h\color{#5BE8F
  ❤︎
    
    
-
+$${\color{pink}​ Zane, Kitty , mike, yu so awesome ur getting a strawpage soon dedicated for being so  awesome to me <3}$$
