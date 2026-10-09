@@ -6,11 +6,11 @@ $${\color{pink}​ 𐔌՞꜆.  ̫.꜀՞𐦯 ⋆.˚}$$
 <img width="730" height="23" alt="ezgif com-webp-to-gif-converter (21)" src="https://github.com/user-attachments/assets/30c02c9f-789e-40c2-961c-49b650a1a83d" />
 <img width="731" height="44" alt="tumblr_a64663820c1bbaea3068c4620a679d62_85102e99_1280" src="https://github.com/user-attachments/assets/1ac35b87-bf3c-4bf6-80ad-7a8419843a5f" />
 
-5201314 . 10 to 70  
+5201314 . 10 to 70  … over dued 
 
 $${\color{#FFB2C1}m\color{#FCCA97}a\color{#FCEA87}i\color{#A6F1B8}n\color{#5BE8FA}-\color{#BCB4FF}c\color{#FD78DA}h\color{#FC898D}a\color{#FFB2C1}r\color{#FCCA97}f\color{#FCEA87}i\color{#A6F1B8}x}$$ 
 
- <div align="center">(づ๑•ᴗ•๑)づ♡ come back later 4 this. . . DUE DATE DEADLINE SEPTEMBER 20TH
+ <div align="center">(づ๑•ᴗ•๑)づ♡ https://nyannmare.straw.page/jeff
   
  main: https://nyannmare.straw.page/nyancat
 
