@@ -2,12 +2,6 @@ $${\color{#9C172D}m\color{#7162E}e\color{#3C162F}e\color{#3C162F}o\color{#5C172E
 
 $${\color{red}​  🂡  }$$
 
-__ 
-       pretend u see a divider here
-         
-__
-
-
 $${\color{red}​  Main Character Fixation }$$ 
  
 
