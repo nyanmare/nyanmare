@@ -7,7 +7,7 @@ $${\color{red}​  Main Character Fixation }$$
 
  <div align="center">:  ̗̀➛♡ 
   
- main: https://nyannmare.straw.page/nyancat
+ main: (https://a1joke.straw.page) 
 
  ❀
 
