@@ -7,7 +7,7 @@ $${\color{red}​  Main Character Fixation }$$
 
  <div align="center">:  ̗̀➛♡ 
   
- main: (https://a1joke.straw.page) 
+ main: 
 
  ❀
 
@@ -17,7 +17,7 @@ $${\color{#9C172D}a\color{#7162E}r\color{#3C162F}c\color{#3C162F}h\color{#5C172E
 
    ❀
 
- <div align="center"> ❀
+ <udiv align="center"> ❀
  
 
  ❀
