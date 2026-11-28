@@ -1,6 +1,6 @@
 $${\color{#9C172D}m\color{#7162E}e\color{#3C162F}e\color{#3C162F}o\color{#5C172E}o\color{#9C172D}o\color{#7C162E}w\color{#5C172E}ww}$$  
 
-$${\color{red}​  🂡  }$$
+$${\color{red}​  ☆  }$$
 
 $${\color{red}​  Main Character Fixation }$$ 
  
